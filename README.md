@@ -1,1 +1,0 @@
-# https-perekazua.github.io
